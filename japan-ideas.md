@@ -213,11 +213,15 @@ Japan is Uniqlo's home and the flagship stores are a completely different experi
 - **Medical esthetic clinics (美容皮膚科, biyōhifuka)** — Japan has solid medical-grade skin clinics for facials, skin analysis, and some LED/light treatments; more clinical and less glam than Seoul but still excellent; look for ones near Ginza or Omotesando with English-language booking options
 - **Kanebo Sensai treatment** — ultra-premium Japanese skincare brand; Sensai salons exist at select luxury hotels; silk protein–based treatments; if you want the most luxurious Japanese brand experience
 
-### Haircut
+### Haircut — Full Package Experience
 
-- **QB House** — legendary 10-minute precision cut for ~¥1,320; no appointment, no wash, no nonsense; remarkably precise and consistent; locations at nearly every major station ⭐ *If you just want a clean cut without the spa experience, this is the answer.*
-- **Salon / barber in Omotesando or Harajuku** — the area around Omotesando is Tokyo's most fashion-forward; many salons here are world-class; some have English-speaking stylists; expect ¥6,000-15,000; good for a more indulgent experience if you want to sit and enjoy it
-- **Note:** Book ahead for nicer salons; walk-in is fine for QB House; Japanese barbers are known for obsessive attention to detail even at the budget end
+*Chris wants a proper full-package experience — not a quick cut. Book in advance.*
+
+- **Tokyo Men's Grooming Salon** ⭐⭐ — luxury men's grooming specifically designed for men; locations in Ginza, Shinjuku, Azabudai Hills, Roppongi, Aoyama; full head spa + haircut packages: scalp diagnosis, cleansing, massage, cut, styling; English-friendly; website: mensgrooming.tokyo — **book online in advance**
+- **Barbering Method** (Aoyama) ⭐⭐ — heritage barbershop lineage since 1934; private room experience; classic haircut + shoulder massage + straight-razor shave; the most traditional full Japanese barber experience available; Aoyama location (near Omotesando)
+- **Hayato Salons** (Roppongi) ⭐ — bilingual English/Japanese stylists; signature head spa combines shampoo with shiatsu acupressure from a professional shiatsu master; genuinely relaxing, not just a wash; book via en.hayatosalons.com
+- **Zangiri Barber** — found on Instagram (@zangiri_barber); to research further; add to consideration list
+- **QB House** — the opposite end: legendary 10-min precision cut for ~¥1,320, no appointment needed; great if you just want a clean tidy-up without the experience
 
 ### Massage
 
@@ -261,6 +265,63 @@ Japan is Uniqlo's home and the flagship stores are a completely different experi
 - Food tours — guided eating experiences, good for solo travelers
 - Cooking class — make ramen, sushi, or izakaya dishes
 - Sake tasting / whisky bar experience
+
+---
+
+## 🌸 April Events & Festivals
+
+*All of these fall during your trip window (Apr 12–27). Worth checking dates and deciding if any are worth building a day around.*
+
+- **Asakusa Yabusame** — traditional horseback archery festival in Asakusa; samurai-era spectacle, free to watch; rare and visually stunning
+- **Tokyo Tower Annual Spring Event: 333 Koinobori** — 333 colorful carp streamers hung from Tokyo Tower for Children's Day season; beautiful and photogenic; free to see from outside
+- **Bunkyo Azalea Festival (Nezu Shrine)** — 3,000 azalea plants in bloom at Nezu Shrine in Bunkyo; one of Tokyo's best spring flower events; late April timing is ideal ⭐
+- **Kameido Tenjin Wisteria Festival** — wisteria in full bloom over the shrine pond in Kameido; one of the most iconic flower photos in Tokyo; late April is peak season ⭐⭐
+- **Fuji Shibazakura Festival** — pink moss phlox (shibazakura) carpeting the ground near Mt. Fuji; could potentially combine with or replace the Kawaguchiko day; spectacular in late April ⭐
+- **Taiwan Festival at Tokyo Skytree Town** — Taiwanese food festival at Skytree; street food, drinks, vendors; fun if you're in the area
+
+---
+
+## 🌺 Flowers & Parks
+
+### Flower Spots Worth Considering
+
+*Late April is one of the best times for flowers in Japan — cherry blossoms are past but wisteria, azaleas, and shibazakura are at peak.*
+
+- **Ashikaga Flower Park** (Tochigi) — giant wisteria tunnels, over 150 years old; one of the most photographed spots in Japan in late April; ~2 hrs from Tokyo ⭐⭐
+- **Hitachi Seaside Park** (Ibaraki) — nemophila (baby blue eyes) covering vast hillsides in blue; stunning and unique; ~2 hrs from Tokyo; mid-April is peak ⭐⭐
+- **Showa Kinen Park** (Tachikawa) — tulips and poppies in late April; large park, easy from central Tokyo (~40 min); good for a half-day
+- **Chichibu Hitsujiyama Park** — shibazakura (pink moss phlox); closer than the Fuji festival version; ~90 min from Ikebukuro
+- **Kameido Tenjin** — wisteria over the shrine pond; already listed above under festivals; close to central Tokyo, easy half-day ⭐
+- **Nezu Shrine** (Bunkyo) — azaleas; already listed above; combine with Yanaka neighborhood nearby
+
+### Parks in Tokyo
+
+*For when you want green space, a walk, or just somewhere to decompress.*
+
+- **Shinjuku Gyoen National Garden** — large, beautiful, three distinct garden styles (Japanese, French, English); ¥500 entry; 10 min from hotel ⭐
+- **Hama-rikyu Gardens** — traditional tidal garden near Tsukiji; combine with Tsukiji breakfast morning ⭐
+- **Ueno Park** — large park with museums, zoo, pond; central, easy; late cherry blossoms may still linger
+- **Koganei Park** (western Tokyo) — spacious, good for a casual afternoon; near Edo-Tokyo Open Air Architectural Museum
+- **Mukojima-Hyakkaen Gardens** — quiet, lesser-known traditional garden near Asakusa; off the tourist trail
+- **Arisugawa-no-miya Memorial Park** (Hiroo) — peaceful forested park in an upscale neighborhood; good for a quiet walk
+- **Jindai Botanical Park** (Chofu) — large botanical garden; rose season starts late April/May
+
+---
+
+## 🏙️ Neighborhoods & Areas to Explore
+
+- **Nakameguro** — canal walk, Onibus Coffee, flour+water, Toriyoshi yakitori; already planned ⭐
+- **Harajuku** — Takeshita Street, Omotesando boulevard, Sarutahiko Coffee; already planned
+- **Nakano** — less touristy than Akihabara; Nakano Broadway for vintage/used watches and subculture; interesting wander
+- **Yanaka** — one of Tokyo's last old-shitamachi (old town) neighborhoods; narrow streets, traditional shops, cats everywhere; combine with Starbucks Café & Art Gallery Yanaka Gotenzaka (below) ⭐
+
+---
+
+## ✨ Random Spots & Experiences
+
+- **Tokyo Aqua Symphony fountain** (Odaiba) — 150-meter fountain show over Tokyo Bay between Odaiba Marine Park and the Rainbow Bridge; runs 10 min every hour 11am–9pm daily; free to watch; spectacular at night ⭐
+- **Starbucks Café & Art Gallery Yanaka Gotenzaka** — not your average Starbucks; art gallery inside, relaxed atmosphere, in the charming Yanaka old-town neighborhood; good pairing with a Yanaka wander
+- **Odaiba** — the artificial island; futuristic, waterfront, Rainbow Bridge views; also has teamLab Borderless nearby (Azabudai Hills is actually in Minato ward but close in spirit)
 
 ---
 

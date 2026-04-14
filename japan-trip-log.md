@@ -1,0 +1,209 @@
+# Japan 2026 — Day by Day Itinerary (Skeleton)
+
+**Base:** Sotetsu Grand Fresa Takadanobaba, Shinjuku-ku, Tokyo
+**Dates:** Sun Apr 12 – Mon Apr 27 (16 days, 15 nights)
+**Structure:** 1 week remote work → 1 week PTO · all daytime hours free regardless
+
+---
+
+## Week 1 — Remote Work Week
+
+_California hours = Japan 1am–10am Tue–Sat · all daytime free · Monday is fully free_
+
+### Day 1 · Sunday April 12 · Arrive
+
+- Land HND 4:15pm
+- Clear customs
+- Pick up pocket wifi at Haneda airport
+- Train to Takadanobaba, check in
+- Light dinner nearby — nothing ambitious, just settle in
+- Early night, start getting on Japan time
+
+---
+
+### Day 2 · Monday April 13 — Shinjuku ✅ (actual)
+
+- Morning: **NEW YORKER'S Cafe 高田馬場１丁目店** — near hotel
+- Browsed Uniqlo (didn't buy)
+- Haircut — went great ⭐
+- Lunch: Menya Sankai tsukemen — talked with owner (English, Aussie accent) ⭐⭐
+- Afternoon: Wandered Shinjuku, saw Grand Seikos, Isetan Men's building (expensive clothes + wallets)
+- Shinjuku Uniqlo flagship — bought stuff ✅
+- Passed Loft — bought journal and pen ✅
+- Coffee shop — matcha + dessert
+- Evening: **Golden Gai** ⭐, bar with books, another bar (spent more than planned), taxi home
+
+---
+
+### Day 3 · Tuesday April 14 — Asakusa (actual — veered from plan) ✅
+
+- Woke up late
+- Breakfast: Lawson — onigiri, fruit, vitamin jelly
+- Asakusa: **Coffee Bar Sajiki** — didn't like it
+- **Fuglen Asakusa** — Norwegian waffle coffee shop, great ⭐
+- **Pelican Cafe** — ham katsu sando ⭐⭐
+- 4pm: Appointment
+- Traveled to Ikebukuro — **こもれび 池袋店** izakaya dinner ⭐
+- Late night: **Mermaid Coffee Roasters Ikebukuro** — trip planning ⭐
+
+_Note: Nakameguro (canal, Daikanyama, Toriyoshi) not yet done — rescheduled TBD_
+
+---
+
+### Day 4 · Wednesday April 15 — Ikebukuro (work day)
+
+- Morning: Work from Sarutahiko Coffee (Ikebukuro)
+- Afternoon: NOBOROCK climbing gym (Ikebukuro)
+- Evening: TBD
+
+---
+
+### Day 5 · Thursday April 16 — Ashikaga Flower Park (day trip) ⭐⭐
+
+- Morning: Work async from coffee shop near hotel, wrap up by ~11am
+- Late morning: Train to **Ashikaga Flower Park** (~1h45m from Shinjuku — JR Ryomo Line to Ashikagashi Station)
+- Afternoon: **Ashikaga Flower Park** — wisteria at peak bloom, bring the Fujifilm ⭐⭐
+  - Giant purple wisteria canopy (150+ year old vine)
+  - Yellow, white, pink cascades and tunnel walks
+  - Natural afternoon light = best photography conditions
+  - ~¥1,500–2,000 entry (adjusts by bloom quality)
+- Return to Tokyo, back by ~7pm
+- Evening: Easy dinner, low key
+
+---
+
+### Day 6 · Friday April 17 — Shibuya (work day)
+
+- Morning: Work from coffee shop in Shibuya — **Streamer Coffee Company** (opens early, egg sandwich + latte art) or **About Life Coffee Brewers** (tiny standing espresso bar, great vibe) ⭐
+- Midday: **Gold's Gym Shibuya** — day pass ~¥2,500–3,500, proper weights session ⭐
+- Afternoon: Wander Shibuya — Shibuya Crossing, Center-gai, Shibuya 109, browse around
+- Evening: Dinner in Shibuya — end of work week, treat yourself (TBD)
+
+---
+
+## Weekend 1 · Saturday–Sunday April 18–19
+
+_Work-free nights — stay out late, social, nightlife_
+
+### Day 7 · Saturday April 18 — Ginza + Golden Gai
+
+- Morning: Ease in, coffee near hotel
+- Late morning: Head to Ginza
+  - **Kuro Mame Coffee** (Ginza/Nihonbashi — World Brewers Cup barista, black cedar interiors) ⭐
+  - **Itoya** (12-floor stationery store, Ginza) — worth a browse even if you don't need anything ⭐
+- Afternoon: **Grand Seiko** browsing — Wako flagship + Namiki-dori boutique (bring passport for tax-free)
+  - Also: Ginza main strip wander, window shopping
+- Evening: Dinner in Ginza area (TBD — could do Bird Land yakitori omakase if booked, or something more casual)
+- Hotel: Rest, decompress
+- Late night: **Golden Gai** — first real late night of the trip, no alarm tomorrow ⭐
+
+---
+
+### Day 8 · Sunday April 19 — Nakameguro
+
+- Sleep in — probably needed after Golden Gai the night before
+- Late morning: **Onibus Coffee** (Nakameguro) — specialty coffee in a restored Japanese house ⭐
+- Afternoon: Canal walk along the Meguro River ⭐, then walk to Daikanyama (~10 min)
+  - Daikanyama: Tsutaya Books, boutiques, wander
+- Evening: **Toriyoshi yakitori** — walk-in, arrive before opening to avoid queue, order soboro donburi + chochin ⭐⭐
+
+---
+
+## Week 2 — PTO · Sightseeing & Day Trips
+
+_Fully free — no work at all, days AND nights_
+
+### Day 9 · Monday April 20 — Kawaguchiko + Shiraito Falls (day trip) ⭐⭐
+
+- Early morning: **Fuji Excursion** limited express from Shinjuku (~7–8am departure) — reserved seat, ~2hrs, scenic ride ⭐
+  - Book in advance (JR Pass or separate ticket, ~¥4,000 one way)
+- Arrive Kawaguchiko ~10am
+- Morning: **Rent a bike** at the station (several shops right outside, ~¥1,500–2,000/day) — loop the lake (~20km)
+  - Best Fuji views from the north shore (Ubuyagasaki peninsula area)
+  - Stop at lakeside cafes, snap photos, take it at your own pace
+- Lunch: Eat near the lake — hōtō noodles are the local specialty (thick flat udon in miso broth, hearty) ⭐
+- Afternoon: **Fujikyu bus to Shiraito Falls** (~35–40 min from Kawaguchiko bus terminal)
+  - **Shiraito Falls** — wide curtain waterfall, ~150m across, fed by snowmelt from Mt. Fuji. Ethereal in person ⭐⭐
+  - Short walk from the bus stop
+- Late afternoon: Bus back to Kawaguchiko, return bike, catch the Fuji Excursion back to Shinjuku
+- Arrive Shinjuku ~7–8pm
+- Dinner: Something easy near the hotel — you'll be tired
+
+---
+
+### Day 10 · Tuesday April 21 — Harajuku / Omotesando / Shopping
+
+- Morning: Ease in — coffee somewhere in Harajuku or Omotesando area
+  - **About Life Coffee Brewers** (Shibuya, tiny standing espresso bar) ⭐ or **Streamer Coffee** nearby
+- Late morning: **Nezu Shrine** — azalea festival (つつじまつり), late April = peak bloom, tunnel of pink/red azaleas up the hillside ⭐⭐
+  - ~20 min by Tokyo Metro Chiyoda Line from Meiji-Jingumae (Harajuku)
+  - Entry to the azalea garden ~¥500
+- Back to Harajuku/Omotesando:
+  - **Omotesando** — main boulevard, high-end boutiques, good window shopping
+  - **Cat Street** — independent streetwear shops, vintage, more casual ⭐
+  - **Takeshita Street** — chaotic, fun to walk once
+  - **Uniqlo** — the Harajuku flagship ⭐ (or save for Ginza 12-floor flagship on a separate day)
+- Lunch: TBD — plenty of options in Harajuku/Omotesando, or grab something on Cat Street
+- Afternoon: Continue shopping, wander, or drop bags back at hotel and decompress
+- Evening: TBD — dinner somewhere good (Harajuku/Shibuya area, or head back toward Shinjuku)
+
+---
+
+### Day 11 · Wednesday April 22 - Kawagoe (day trip)
+
+_(ideas TBD)_
+
+---
+
+### Day 12 · Thursday April 23 — Free Tokyo day (TBD)
+
+_(ideas TBD)_
+
+---
+
+### Day 13 · Friday April 24 — Hitachi Seaside Park + Omakase dinner
+
+- Early morning: Train to **Hitachi Seaside Park** (~2hrs from Ueno via JR Joban Line to Katsuta, then Hitachinaka Seaside Railway Minato Line to Ajigaura) ⭐⭐
+  - Late April = peak nemophila bloom — hillsides covered in blue baby blue eyes flowers, surreal
+  - ~¥450 entry + ¥200 Minato Line
+- Spend the morning/afternoon wandering the park — it's large, take your time
+- Head back to Tokyo, arrive ~6–7pm
+- Evening: **Omakase dinner** — TBD (Sushi Rinda / Kyubey / Bird Land yakitori omakase) ⭐⭐
+  - Book well in advance — this is the reward for a long travel day
+- Note: Hitachi timed-entry tickets may be needed on peak weekends — check ahead
+
+---
+
+## Weekend 2 · Saturday–Sunday April 25–26
+
+_Fully work-free — wind down, last big nights out_
+
+### Day 14 · Saturday April 25 — TBD
+
+_(ideas TBD)_
+
+---
+
+### Day 15 · Sunday April 26
+
+_(ideas TBD)_
+
+---
+
+## Day 16 · Monday April 27 · Depart
+
+- Check out of hotel
+- Head to HND — depart 6:25pm
+- Connection Detroit (DTW) → arrive FLL 11:15pm
+
+---
+
+## Day Trip Slots
+
+_To be assigned to specific days above once planned_
+
+| Day Trip                       | Best day to go                                        | Duration                 |
+| ------------------------------ | ----------------------------------------------------- | ------------------------ |
+| Kawaguchiko + Shiraito Falls   | Day 9 (Mon Apr 20) ✅                                 | Full day ~2 hrs each way |
+| Kawagoe                        | Day 11 (Wed Apr 22) ✅                                | Full day ~1 hr           |
+| Hitachi Seaside Park           | Day 13 (Fri Apr 24) ✅                                | Full day ~2 hrs each way |
