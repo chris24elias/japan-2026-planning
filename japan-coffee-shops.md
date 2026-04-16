@@ -11,6 +11,9 @@
 | Fuglen Asakusa | Asakusa | Day 3 — Norwegian waffles, great ⭐ |
 | Pelican Cafe | Asakusa | Day 3 — ham katsu sando ⭐⭐ (more cafe/bakery) |
 | Mermaid Coffee Roasters Ikebukuro | Ikebukuro | Day 3 late night — super cool ⭐ |
+| Sarutahiko Coffee | Harajuku | Day 4 — bridge location, great coffee ⭐ |
+| Streamer Coffee Company | Shibuya | Day 4 — cold brew decent, cinnamon roll disappointing |
+| Good Sound Coffee | Nakameguro | Day 5 ⭐ |
 
 ---
 
@@ -19,7 +22,7 @@
 | Shop | Area | Notes |
 |------|------|-------|
 | Onibus Coffee | Nakameguro | Specialty coffee in restored Japanese house, roastery downstairs ⭐ — Day 8 |
-| GOOD SOUND COFFEE | Nakameguro | — Day 8 |
+| GOOD SOUND COFFEE | Nakameguro | ✅ Visited Day 5 |
 | Starbucks Reserve® Roastery Tokyo | Nakameguro | Multi-floor, stunning space ⭐ — Day 8 |
 | Sedai Coffee and Roasters | TBD | — |
 | COUNTERPART COFFEE GALLERY | TBD | — |

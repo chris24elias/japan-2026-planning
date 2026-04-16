@@ -222,6 +222,7 @@ Japan is Uniqlo's home and the flagship stores are a completely different experi
 - **Hayato Salons** (Roppongi) ⭐ — bilingual English/Japanese stylists; signature head spa combines shampoo with shiatsu acupressure from a professional shiatsu master; genuinely relaxing, not just a wash; book via en.hayatosalons.com
 - **Zangiri Barber** — found on Instagram (@zangiri_barber); to research further; add to consideration list
 - **QB House** — the opposite end: legendary 10-min precision cut for ~¥1,320, no appointment needed; great if you just want a clean tidy-up without the experience
+- **Blazeman Barber** (Shinjuku) — ✅ went here Day 2, loved it; want to go back for another cut before leaving Japan ⭐⭐
 
 ### Massage
 

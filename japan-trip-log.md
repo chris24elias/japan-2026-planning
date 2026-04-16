@@ -66,20 +66,18 @@ _Note: Skipped NOBOROCK (back pain) — rescheduled TBD_
 
 ---
 
-### Day 5 · Thursday April 16 — Ashikaga Flower Park (day trip) ⭐⭐
+### Day 5 · Thursday April 16 — Nakameguro + Ginza (actual — pivoted from Ashikaga)
 
-- Leave laptop at hotel — no need to bring it
-- Early morning: Depart hotel ~7:30–8am, train to **Ashikaga Flower Park** (~1h45m — JR Ryomo Line to Ashikagashi Station), arrive ~9:30am
-- Morning–midday: **Ashikaga Flower Park** — wisteria at peak bloom, bring the Fujifilm ⭐⭐
-  - Giant purple wisteria canopy (150+ year old vine)
-  - Yellow, white, pink cascades and tunnel walks
-  - Morning light is great for photography, fewer crowds than afternoon
-  - ~¥1,500–2,000 entry (adjusts by bloom quality)
-  - ⚠️ Check if timed-entry tickets required during peak season — book in advance if so
-- Lunch: Hōtō noodles near the park (thick flat udon in miso broth, local specialty) ⭐
-- Afternoon: Head back to Tokyo, arrive ~4–5pm
-- Late afternoon/evening: Async work from hotel or nearby coffee shop
-- Evening: Easy dinner, low key
+- Woke up late (~10:42am) — Ashikaga day trip moved to Saturday
+- Morning: **Good Sound Coffee** (Nakameguro) ⭐
+- Midday: Walk north along Meguro River → **Starbucks Reserve Roastery Tokyo** (photos)
+- Afternoon: Head to Ginza
+  - **Grand Seiko** — Wako flagship + Namiki-dori boutique (bring passport for tax-free)
+  - **Uniqlo Ginza** — 12-floor flagship
+  - **Kuro Mame Coffee** — World Brewers Cup barista, black cedar interiors ⭐
+  - **Itoya** — 12-floor stationery store
+  - Food: TBD (Ginza Hisagi black curry? Kyubey if booked?)
+- Evening: TBD
 
 ---
 
@@ -96,17 +94,19 @@ _Note: Skipped NOBOROCK (back pain) — rescheduled TBD_
 
 _Work-free nights — stay out late, social, nightlife_
 
-### Day 7 · Saturday April 18 — Ginza + Golden Gai
+### Day 7 · Saturday April 18 — Ashikaga Flower Park (day trip) + Golden Gai ⭐⭐
 
-- Morning: Ease in, coffee near hotel
-- Late morning: Head to Ginza
-  - **Kuro Mame Coffee** (Ginza/Nihonbashi — World Brewers Cup barista, black cedar interiors) ⭐
-  - **Itoya** (12-floor stationery store, Ginza) — worth a browse even if you don't need anything ⭐
-- Afternoon: **Grand Seiko** browsing — Wako flagship + Namiki-dori boutique (bring passport for tax-free)
-  - Also: Ginza main strip wander, window shopping
-- Evening: Dinner in Ginza area (TBD — could do Bird Land yakitori omakase if booked, or something more casual)
+- Early morning: Depart hotel ~7:30–8am, train to **Ashikaga Flower Park** (~1h45m — JR Ryomo Line to Ashikagashi Station), arrive ~9:30am
+- Morning–midday: **Ashikaga Flower Park** — wisteria at peak bloom, bring the Fujifilm ⭐⭐
+  - Giant purple wisteria canopy (150+ year old vine)
+  - Yellow, white, pink cascades and tunnel walks
+  - Morning light is great for photography, fewer crowds than afternoon
+  - ~¥1,500–2,000 entry (adjusts by bloom quality)
+  - ⚠️ Check if timed-entry tickets required during peak season — book in advance if so
+- Lunch: Hōtō noodles near the park (thick flat udon in miso broth, local specialty) ⭐
+- Afternoon: Head back to Tokyo, arrive ~4–5pm
 - Hotel: Rest, decompress
-- Late night: **Golden Gai** — first real late night of the trip, no alarm tomorrow ⭐
+- Late night: **Golden Gai** — no alarm tomorrow, stay out late ⭐
 
 ---
 
