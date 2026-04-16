@@ -238,7 +238,6 @@ Japan is Uniqlo's home and the flagship stores are a completely different experi
 ### Requires Advance Booking ⚠️
 - **teamLab Planets / Borderless** — digital immersive art, book early
 - **Ghibli Museum** — lottery system, books months ahead, check availability ASAP
-- **Shibuya Sky** — observation deck, advance tickets recommended for April
 
 ### No Booking Needed
 - Meiji Shrine

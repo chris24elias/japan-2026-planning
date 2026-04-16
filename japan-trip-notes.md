@@ -129,9 +129,6 @@ Takadanobaba 1-27-7, Shinjuku-ku, Tokyo
   - Sells out — do not wait until close to the trip
   - ~¥3,200 adults
 
-- [ ] **Shibuya Sky** observation deck — book at [shibuya-sky.com](https://shibuya-sky.com/en/)
-  - Suggested slot: **sunset on Sat Apr 18** (~6:30-7pm; spectacular at dusk)
-  - ~¥2,000 adults; timed entry tickets available online
 
 - [ ] **Koffee Mameya Kakeru** (coffee omakase tasting) — reserve via their website
   - Suggested: **Sun Apr 19 midday**
@@ -255,6 +252,5 @@ Takadanobaba 1-27-7, Shinjuku-ku, Tokyo
 - [x] ~~Kawaguchiko bus~~ → see TIME-SENSITIVE section above
 - [ ] Sushi omakase reservations (Kyubey + optional Sushi Rinda) → 3-6 weeks before
 - [ ] teamLab Borderless tickets → any time; do not wait
-- [ ] Shibuya Sky sunset slot → 2-3 weeks before
 - [ ] Bird Land yakitori → 1-2 weeks before
 

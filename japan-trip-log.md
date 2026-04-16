@@ -50,24 +50,35 @@ _Note: Nakameguro (canal, Daikanyama, Toriyoshi) not yet done — rescheduled TB
 
 ---
 
-### Day 4 · Wednesday April 15 — Ikebukuro (work day)
+### Day 4 · Wednesday April 15 — Harajuku + Omotesando + Shibuya (actual) ✅
 
-- Morning: Work from Sarutahiko Coffee (Ikebukuro)
-- Afternoon: NOBOROCK climbing gym (Ikebukuro)
-- Evening: TBD
+- Morning: **Sarutahiko Coffee** Harajuku (bridge location) — great coffee, lot of work done ⭐
+- Omotesando: **Ishida** — browsed Grand Seikos, no Sky Flake in stock
+- Walked toward Shibuya: stopped into Gregory (eyeing 20L bag), **Streamer Coffee Company** (cold brew okay, cinnamon roll disappointing), browsed Lacoste
+- Lunch/dinner: **Afuri Shibuya Dogenzaka** — yuzu shio ramen ⭐
+- Evening: work at **Forest Library**
+- Burger at **Smash Scramble**
+- Rain — stopped at Loft, bought a journal and umbrella
+- Dessert: matcha soft serve at **Tokyo Matcha**
+- Home
+
+_Note: Skipped NOBOROCK (back pain) — rescheduled TBD_
 
 ---
 
 ### Day 5 · Thursday April 16 — Ashikaga Flower Park (day trip) ⭐⭐
 
-- Morning: Work async from coffee shop near hotel, wrap up by ~11am
-- Late morning: Train to **Ashikaga Flower Park** (~1h45m from Shinjuku — JR Ryomo Line to Ashikagashi Station)
-- Afternoon: **Ashikaga Flower Park** — wisteria at peak bloom, bring the Fujifilm ⭐⭐
+- Leave laptop at hotel — no need to bring it
+- Early morning: Depart hotel ~7:30–8am, train to **Ashikaga Flower Park** (~1h45m — JR Ryomo Line to Ashikagashi Station), arrive ~9:30am
+- Morning–midday: **Ashikaga Flower Park** — wisteria at peak bloom, bring the Fujifilm ⭐⭐
   - Giant purple wisteria canopy (150+ year old vine)
   - Yellow, white, pink cascades and tunnel walks
-  - Natural afternoon light = best photography conditions
+  - Morning light is great for photography, fewer crowds than afternoon
   - ~¥1,500–2,000 entry (adjusts by bloom quality)
-- Return to Tokyo, back by ~7pm
+  - ⚠️ Check if timed-entry tickets required during peak season — book in advance if so
+- Lunch: Hōtō noodles near the park (thick flat udon in miso broth, local specialty) ⭐
+- Afternoon: Head back to Tokyo, arrive ~4–5pm
+- Late afternoon/evening: Async work from hotel or nearby coffee shop
 - Evening: Easy dinner, low key
 
 ---

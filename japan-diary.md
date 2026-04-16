@@ -12,7 +12,7 @@ Landed at Haneda at 4:15pm, cleared customs, picked up my pocket wifi at the air
 
 Started the morning at NEW YORKER'S Cafe 高田馬場１丁目店, right near the hotel. Had a coffee and mapped out the day, mainly planning where to get my haircut. Stopped by Uniqlo first looking for a light casual sweater but didn't find anything worth buying.
 
-Got my haircut and it was awesome — I look so much better. Afterwards walked over to Menya Sankai in Okubo for tsukemen. The restaurant owner came out and spoke great English with an Aussie accent — had a good chat with him. One of the best tsukemen I've had.
+Got my haircut and it was awesome — I look so much better. Afterwards walked over to Menya Sankai in Okubo for tsukemen. The chef had run out of ingredients so I didn't get the full bowl — missing the meat and some of the usual components. Still pretty good, but the real highlight was the owner coming out and chatting — spoke great English with an Aussie accent.
 
 Spent the afternoon wandering Shinjuku. Stumbled into a random mall and spotted a Poneglyph out of nowhere — turns out there was a huge One Piece store on the 4th floor, the one I'd seen all over social media. It was a special event store but completely sold out and closed to entry for the whole month, so I couldn't get in. Found a Loft on the 5th floor and bought some journals and a pen instead.
 
@@ -28,6 +28,24 @@ Woke up pretty late. Grabbed breakfast at Lawson — onigiri, fruit, and a vitam
 
 Headed to Asakusa. First tried Coffee Bar Sajiki which had been recommended, but I wasn't feeling it. Sat there and did some work anyway. Moved on to Fuglen Asakusa which was a completely different vibe — Norwegian waffles, great coffee, much better. Did more work there.
 
-Walked over to Pelican Cafe nearby and had a ham katsu sando. Absolutely delicious.
+Walked over to Pelican Cafe nearby and had a ham katsu sando. Pretty good, though at the end of the day it's just ham. They gave me 4 sandos — was fine after 2.
 
 Had my 4pm appointment — it was okay, not quite what I was hoping for. Afterwards traveled to Ikebukuro and had dinner at こもれび 池袋店, a really good izakaya. Ended the night at Mermaid Coffee Roasters Ikebukuro — super cool spot — where I sat down and did some planning for the rest of the trip.
+
+---
+
+## Day 4 — Wednesday April 15
+
+Started the day in Harajuku at Sarutahiko Coffee (the bridge location) — great coffee, did a lot of work there.
+
+Walked over to Omotesando and stopped into Ishida to check out their Grand Seikos. They didn't have the Sky Flake.
+
+Wandered towards Shibuya and ducked into a Gregory store — really interested in one of their 20L bags. The Alpaka tote with the 16" laptop and everything else is starting to hurt and feel tight. Might go back for it.
+
+Stopped at Streamer Coffee Company for a cold brew (decent) and a cinnamon roll that was disappointing. Kept walking into Shibuya, browsed Lacoste and saw a lot of nice stuff.
+
+Had ramen at Afuri Shibuya Dogenzaka — yuzu shio ramen. Good spot, multiple locations across Tokyo, they specialize in yuzu ramen.
+
+Spent the evening working at Forest Library.
+
+After wrapping up, had a burger at Smash Scramble. It started raining so stopped into Loft and picked up a journal and an umbrella. Finished the night with matcha soft serve at Tokyo Matcha, then headed home.
