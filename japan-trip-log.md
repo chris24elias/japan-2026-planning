@@ -71,12 +71,10 @@ _Note: Skipped NOBOROCK (back pain) — rescheduled TBD_
 - Woke up late (~10:42am) — Ashikaga day trip moved to Saturday
 - Morning: **Good Sound Coffee** (Nakameguro) ⭐
 - Midday: Walk north along Meguro River → **Starbucks Reserve Roastery Tokyo** (photos)
-- Afternoon: Head to Ginza
-  - **Grand Seiko** — Wako flagship + Namiki-dori boutique (bring passport for tax-free)
-  - **Uniqlo Ginza** — 12-floor flagship
-  - **Kuro Mame Coffee** — World Brewers Cup barista, black cedar interiors ⭐
-  - **Itoya** — 12-floor stationery store
-  - Food: TBD (Ginza Hisagi black curry? Kyubey if booked?)
+- ~5pm: Head to Ginza (Hibiya Line direct from Nakameguro)
+  - First Grand Seiko store — no Skyflake in stock
+  - Second Grand Seiko store — **BOUGHT THE SKYFLAKE** ⭐⭐⭐
+- ~7:30pm: Dinner in Ginza (TBD)
 - Evening: TBD
 
 ---
