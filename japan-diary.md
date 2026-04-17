@@ -56,7 +56,7 @@ After wrapping up, had a burger at Smash Scramble. It started raining so stopped
 
 Woke up late — around 10:42am, so the Ashikaga Flower Park day trip was out. Decided to head to Nakameguro instead.
 
-Started at Good Sound Coffee, then walked north along the Meguro River toward the Starbucks Reserve Roastery. Went inside — got a fruit tart and a cocktail, really nice spot.
+Started at Good Sound Coffee, then walked north along the Meguro River. Stopped at Streamer Coffee Company for a coffee on the way, then continued to the Starbucks Reserve Roastery. Went inside — got a fruit tart and a cocktail, really nice spot.
 
 Headed to Ginza to finally hunt down the Grand Seiko Skyflake. First stop was the Wako flagship — they didn't have it. Walked over to the second boutique and they had it. Bought it. Impulsive and expensive but it's beautiful.
 
