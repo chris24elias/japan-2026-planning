@@ -49,3 +49,17 @@ Had ramen at Afuri Shibuya Dogenzaka — yuzu shio ramen. Good spot, multiple lo
 Spent the evening working at Forest Library.
 
 After wrapping up, had a burger at Smash Scramble. It started raining so stopped into Loft and picked up a journal and an umbrella. Finished the night with matcha soft serve at Tokyo Matcha, then headed home.
+
+---
+
+## Day 5 — Thursday April 16
+
+Woke up late — around 10:42am, so the Ashikaga Flower Park day trip was out. Decided to head to Nakameguro instead.
+
+Started at Good Sound Coffee, then walked north along the Meguro River toward the Starbucks Reserve Roastery. Went inside — got a fruit tart and a cocktail, really nice spot.
+
+Headed to Ginza to finally hunt down the Grand Seiko Skyflake. First stop was the Wako flagship — they didn't have it. Walked over to the second boutique and they had it. Bought it. Impulsive and expensive but it's beautiful.
+
+By then it was 7:30pm and I hadn't eaten all day. Went to Bistro Hisagi nearby — had oysters and curry. It was good. Ended up chatting with a Swedish guy sitting next to me for the whole meal.
+
+Skipped dessert and headed back to the hotel.
