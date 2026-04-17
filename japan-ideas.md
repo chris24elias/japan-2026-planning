@@ -200,6 +200,10 @@ Japan is Uniqlo's home and the flagship stores are a completely different experi
 - **GU** (Uniqlo's sister brand) — faster fashion, even cheaper, Japan-exclusive items worth a look
 - **What to look for:** HEATTECH in colors/weights not sold in the US, limited Japan-only collaborations, Merino wool basics at lower prices, linen line in spring colorways
 
+### Glasses
+
+- **JINS** — Japanese eyewear chain, stylish frames at great prices (~¥5,000–13,000 including lenses); lenses made in ~30 min; multiple locations (Shinjuku, Shibuya, Harajuku, Ginza); significantly cheaper than US opticians ⭐
+
 ---
 
 ## 💆 Wellness — Skincare, Haircut, Massage
