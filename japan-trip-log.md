@@ -79,12 +79,15 @@ _Note: Skipped NOBOROCK (back pain) — rescheduled TBD_
 
 ---
 
-### Day 6 · Friday April 17 — Shibuya (work day)
+### Day 6 · Friday April 17 — Shinjuku (actual — light day)
 
-- Morning: Work from coffee shop in Shibuya — **Streamer Coffee Company** (opens early, egg sandwich + latte art) or **About Life Coffee Brewers** (tiny standing espresso bar, great vibe) ⭐
-- Midday: **Gold's Gym Shibuya** — day pass ~¥2,500–3,500, proper weights session ⭐
-- Afternoon: Wander Shibuya — Shibuya Crossing, Center-gai, Shibuya 109, browse around
-- Evening: Dinner in Shibuya — end of work week, treat yourself (TBD)
+- Afternoon (~12-1pm): **Shinjuku Gyoen** — too crowded, no good seating, couldn't relax
+- Worked from phone sitting on the grass
+- Left Gyoen, went to **Caffice** (Shinjuku) to work
+- ~5pm: Browsed **master-piece** store — didn't buy anything. Spotted an expensive jacket (~$250) in another store on the same floor. Undecided.
+- Stopped at **Matsumoto Kiyoshi** — bought magnesium oxide + enema (day 4 of constipation)
+- Dinner: **Yakitori Ruike** (Nishi-Shinjuku) — disappointing, only chicken
+- Straight home. Took magnesium + Colace before bed.
 
 ---
 
@@ -92,7 +95,16 @@ _Note: Skipped NOBOROCK (back pain) — rescheduled TBD_
 
 _Work-free nights — stay out late, social, nightlife_
 
-### Day 7 · Saturday April 18 — Ashikaga Flower Park (day trip) + Golden Gai ⭐⭐
+### Day 7 · Saturday April 18 — Recovery day (actual — Ashikaga moved to Sunday)
+
+- Woke up still constipated (day 5). Feeling terrible.
+- Used enema — worked but only a little
+- Went to grocery store
+- Resting at hotel, planning light afternoon (massage, laundry, maybe revisit jacket store)
+
+---
+
+### Day 8 · Sunday April 19 — Ashikaga Flower Park (day trip) ⭐⭐
 
 - Early morning: Depart hotel ~7:30–8am, train to **Ashikaga Flower Park** (~1h45m — JR Ryomo Line to Ashikagashi Station), arrive ~9:30am
 - Morning–midday: **Ashikaga Flower Park** — wisteria at peak bloom, bring the Fujifilm ⭐⭐
@@ -101,20 +113,9 @@ _Work-free nights — stay out late, social, nightlife_
   - Morning light is great for photography, fewer crowds than afternoon
   - ~¥1,500–2,000 entry (adjusts by bloom quality)
   - ⚠️ Check if timed-entry tickets required during peak season — book in advance if so
-- Lunch: Hōtō noodles near the park (thick flat udon in miso broth, local specialty) ⭐
+- Lunch: Hōtō noodles near the park ⭐
 - Afternoon: Head back to Tokyo, arrive ~4–5pm
-- Hotel: Rest, decompress
-- Late night: **Golden Gai** — no alarm tomorrow, stay out late ⭐
-
----
-
-### Day 8 · Sunday April 19 — Nakameguro
-
-- Sleep in — probably needed after Golden Gai the night before
-- Late morning: **Onibus Coffee** (Nakameguro) — specialty coffee in a restored Japanese house ⭐
-- Afternoon: Canal walk along the Meguro River ⭐, then walk to Daikanyama (~10 min)
-  - Daikanyama: Tsutaya Books, boutiques, wander
-- Evening: **Toriyoshi yakitori** — walk-in, arrive before opening to avoid queue, order soboro donburi + chochin ⭐⭐
+- Evening: Chill — no work Monday
 
 ---
 

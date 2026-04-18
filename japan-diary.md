@@ -63,3 +63,23 @@ Headed to Ginza to finally hunt down the Grand Seiko Skyflake. First stop was th
 By then it was 7:30pm and I hadn't eaten all day. Went to Bistro Hisagi nearby — had oysters and curry. It was good. Ended up chatting with a Swedish guy sitting next to me for the whole meal.
 
 Skipped dessert and headed back to the hotel.
+
+---
+
+## Day 6 — Friday April 17
+
+Headed to Shinjuku Gyoen around noon. Bad call — it was packed, no good seating, couldn't relax at all. Ended up sitting on the grass and working from my phone anyway since leaving felt like a waste of time. Eventually gave up and left.
+
+Went to Caffice in Shinjuku and got some real work done. Around 5 I went to check out the master-piece store — cool stuff but didn't buy anything. There was a jacket in another store on the same floor that I really liked but it was around $250 and I've already spent so much this trip. Still thinking about it.
+
+Stopped at Matsumoto Kiyoshi and bought magnesium oxide and an enema. It's been 4 days without pooping and I'm getting worried. Probably haven't been drinking enough water.
+
+Had dinner at Yakitori Ruike in Nishi-Shinjuku. Disappointing — it was only chicken. Not sure if it's related but I'm starting to feel worse after eating there. Went straight home and took magnesium and Colace before bed.
+
+---
+
+## Day 7 — Saturday April 18
+
+Woke up and still no urge to go — day 5 now. Feeling really bad. Finally used the enema and it worked but only a little. Not enough.
+
+Went out to the grocery store to buy some stuff but came back to the hotel. It's the afternoon and I'm still not feeling great. Ashikaga moved to tomorrow. Trying to make this a light recovery day — maybe a massage and laundry.
