@@ -56,7 +56,6 @@
 **Day trip options from Tokyo** (all doable without extra check-in):
 - **Kawaguchiko + Shiraito Falls** — Mt. Fuji views from Lake Kawaguchi + one of Japan's most famous waterfalls nearby; combine both in one day, ~2 hrs from Tokyo ⭐
 - **Kamakura** — giant Buddha, coastal temples, relaxed vibe, ~1 hr by train
-- **Yokohama** — Chinatown, waterfront harbour, ~30 min
 - **Fukiware Falls (Gunma)** — nicknamed "Japan's Niagara," wide horizontal river drop; ~2.5–3 hrs, long day but worth it for a dedicated waterfall trip
 - **Jo-ren Falls + Izu Peninsula** — beautiful waterfall into a turquoise pool, can combine with onsen on the way back, ~2 hrs
 - ~~Hakone~~ — done before
@@ -111,24 +110,11 @@ Takadanobaba 1-27-7, Shinjuku-ku, Tokyo
 
 ### ⚠️ TIME-SENSITIVE — Do Before March 15
 
-- [ ] **Ghibli Museum lottery** ⏰ **URGENT — lottery opens ~March 10**
-  - Tickets sold via lottery through the [Ghibli Museum official site](https://www.ghibli-museum.jp/en/tickets/) (international portal) or Lawson convenience store system
-  - Lottery for April dates opens on the **10th of the prior month** — so March 10 for April visits
-  - Sells out within minutes. Set a calendar reminder for March 10 and enter as soon as the window opens.
-  - Choose your preferred date + timeslot. ~¥1,000 entry.
-  - If you miss March 10: check for cancellation releases on the 10th of each month
-
 - [ ] **Kawaguchiko highway bus** — book in advance at willerexpress.com or highwaybus.com
   - Target: **Tue Apr 14**, depart Busta Shinjuku (Shinjuku Expressway Bus Terminal, 4F) ~7:15-7:30am
   - Round trip: ~¥2,000 each way; seats fill up especially in spring tourist season
 
 ### 🎟️ Advance Tickets (Book 2-4 Weeks Before)
-
-- [ ] **teamLab Borderless** (Azabudai Hills) — book at [teamlab.art](https://www.teamlab.art/e/borderless-azabudaikills/)
-  - Suggested date: **Wed Apr 22 evening** (work week, free from ~2pm)
-  - Sells out — do not wait until close to the trip
-  - ~¥3,200 adults
-
 
 - [ ] **Koffee Mameya Kakeru** (coffee omakase tasting) — reserve via their website
   - Suggested: **Sun Apr 19 midday**
@@ -244,13 +230,10 @@ Takadanobaba 1-27-7, Shinjuku-ku, Tokyo
 ### 👥 Social Ideas
 
 - **Walking tours** — Shinjuku Omoide Yokocho walking tours, Asakusa food tours, many free/tip-based; search on GetYourGuide or Viator
-- **Cooking class** — ramen or sushi making; good solo activity; book on Airbnb Experiences or cooking class sites
 - **Social apps** — Meetup (Tokyo events), Bumble BFF (BFF mode), Tandem / HelloTalk (language exchange, meet locals), Couchsurfing (meetup events)
 
 ### 🗓️ Advance Booking Required *(do these soon — some book out weeks/months)*
-- [x] ~~Ghibli Museum lottery~~ → see TIME-SENSITIVE section above
 - [x] ~~Kawaguchiko bus~~ → see TIME-SENSITIVE section above
 - [ ] Sushi omakase reservations (Kyubey + optional Sushi Rinda) → 3-6 weeks before
-- [ ] teamLab Borderless tickets → any time; do not wait
 - [ ] Bird Land yakitori → 1-2 weeks before
 

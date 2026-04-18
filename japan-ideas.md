@@ -155,11 +155,6 @@
 - ~1 hr from Tokyo, half or full day
 - **To research:** which temples worth visiting, best food spots there
 
-### Yokohama
-- Chinatown, Minato Mirai waterfront, Sankeien Garden
-- ~30 min from Tokyo, easy half day
-- **To research:** best areas to walk, food recommendations
-
 ### Waterfall Day Trip (pick one)
 - **Fukiware Falls (Gunma)** — "Japan's Niagara," ~2.5–3 hrs, long day
 - **Jo-ren Falls (Izu Peninsula)** — beautiful drop into turquoise pool, combine with onsen, ~2 hrs
@@ -240,10 +235,6 @@ Japan is Uniqlo's home and the flagship stores are a completely different experi
 
 ## 🎟️ Attractions & Experiences
 
-### Requires Advance Booking ⚠️
-- **teamLab Planets / Borderless** — digital immersive art, book early
-- **Ghibli Museum** — lottery system, books months ahead, check availability ASAP
-
 ### No Booking Needed
 - Meiji Shrine
 - Senso-ji Temple (Asakusa) — even if you skip the shrine vibe, Nakamise shopping street + surrounding area is worth it; combine with Suzukien matcha stop
@@ -267,7 +258,6 @@ Japan is Uniqlo's home and the flagship stores are a completely different experi
 ### Group Experiences
 - Walking tours — many free/tip-based in Shinjuku, Asakusa, Harajuku
 - Food tours — guided eating experiences, good for solo travelers
-- Cooking class — make ramen, sushi, or izakaya dishes
 - Sake tasting / whisky bar experience
 
 ---
@@ -325,7 +315,7 @@ Japan is Uniqlo's home and the flagship stores are a completely different experi
 
 - **Tokyo Aqua Symphony fountain** (Odaiba) — 150-meter fountain show over Tokyo Bay between Odaiba Marine Park and the Rainbow Bridge; runs 10 min every hour 11am–9pm daily; free to watch; spectacular at night ⭐
 - **Starbucks Café & Art Gallery Yanaka Gotenzaka** — not your average Starbucks; art gallery inside, relaxed atmosphere, in the charming Yanaka old-town neighborhood; good pairing with a Yanaka wander
-- **Odaiba** — the artificial island; futuristic, waterfront, Rainbow Bridge views; also has teamLab Borderless nearby (Azabudai Hills is actually in Minato ward but close in spirit)
+- **Odaiba** — the artificial island; futuristic, waterfront, Rainbow Bridge views
 
 ---
 

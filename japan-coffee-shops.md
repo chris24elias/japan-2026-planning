@@ -38,6 +38,7 @@
 | COFFEE VALLEY | TBD | — |
 | Tokiya | TBD | — |
 | Chatei Hatou | TBD | Legendary old-school Tokyo coffee shop ⭐ |
+| Glitch Coffee | Jinbocho | World-renowned specialty roaster, light-roasted single-origin, pour-over focus ⭐⭐ |
 | Bistro Hisagi | TBD | — |
 
 ---
