@@ -95,27 +95,28 @@ _Note: Skipped NOBOROCK (back pain) — rescheduled TBD_
 
 _Work-free nights — stay out late, social, nightlife_
 
-### Day 7 · Saturday April 18 — Recovery day (actual — Ashikaga moved to Sunday)
+### Day 7 · Saturday April 18 — Recovery day + Shinjuku night (actual)
 
 - Woke up still constipated (day 5). Feeling terrible.
 - Used enema — worked but only a little
-- Went to grocery store
-- Resting at hotel, planning light afternoon (massage, laundry, maybe revisit jacket store)
+- Grocery store run, rested at hotel through afternoon
+- Evening: felt okay enough to go out — back to Shinjuku
+  - Revisited the jacket store — still didn't buy
+  - Walked around Shinjuku
+  - Dinner: **yakiniku** (mistake — body still wasn't processing food)
+- Home
 
 ---
 
-### Day 8 · Sunday April 19 — Ashikaga Flower Park (day trip) ⭐⭐
+### Day 8 · Sunday April 19 — Nakameguro (actual — Ashikaga scrapped, sick)
 
-- Early morning: Depart hotel ~7:30–8am, train to **Ashikaga Flower Park** (~1h45m — JR Ryomo Line to Ashikagashi Station), arrive ~9:30am
-- Morning–midday: **Ashikaga Flower Park** — wisteria at peak bloom, bring the Fujifilm ⭐⭐
-  - Giant purple wisteria canopy (150+ year old vine)
-  - Yellow, white, pink cascades and tunnel walks
-  - Morning light is great for photography, fewer crowds than afternoon
-  - ~¥1,500–2,000 entry (adjusts by bloom quality)
-  - ⚠️ Check if timed-entry tickets required during peak season — book in advance if so
-- Lunch: Hōtō noodles near the park ⭐
-- Afternoon: Head back to Tokyo, arrive ~4–5pm
-- Evening: Chill — no work Monday
+- Felt awful all day — yakiniku from prior night undigested, nauseous + full
+- Went to Nakameguro anyway
+- Stumbled into a **dog fair event** on arrival — tons of dogs ⭐
+- **Onibus Coffee** — had a coffee
+- **Good Sound Coffee** — cheesecake
+- Walked to **% Arabica** — couldn't order anything, felt too sick
+- Back to hotel
 
 ---
 
@@ -123,64 +124,58 @@ _Work-free nights — stay out late, social, nightlife_
 
 _Fully free — no work at all, days AND nights_
 
-### Day 9 · Monday April 20 — Kawaguchiko + Shiraito Falls (day trip) ⭐⭐
+### Day 9 · Monday April 20 — Sick day, hotel (actual — Kawaguchiko scrapped)
 
-- Early morning: **Fuji Excursion** limited express from Shinjuku (~7–8am departure) — reserved seat, ~2hrs, scenic ride ⭐
-  - Book in advance (JR Pass or separate ticket, ~¥4,000 one way)
-- Arrive Kawaguchiko ~10am
-- Morning: **Rent a bike** at the station (several shops right outside, ~¥1,500–2,000/day) — loop the lake (~20km)
-  - Best Fuji views from the north shore (Ubuyagasaki peninsula area)
-  - Stop at lakeside cafes, snap photos, take it at your own pace
-- Lunch: Eat near the lake — hōtō noodles are the local specialty (thick flat udon in miso broth, hearty) ⭐
-- Afternoon: **Fujikyu bus to Shiraito Falls** (~35–40 min from Kawaguchiko bus terminal)
-  - **Shiraito Falls** — wide curtain waterfall, ~150m across, fed by snowmelt from Mt. Fuji. Ethereal in person ⭐⭐
-  - Short walk from the bus stop
-- Late afternoon: Bus back to Kawaguchiko, return bike, catch the Fuji Excursion back to Shinjuku
-- Arrive Shinjuku ~7–8pm
-- Dinner: Something easy near the hotel — you'll be tired
+- Still felt horrible. Didn't leave the hotel all day.
+- Did laundry at the hotel
+- Night: stepped out briefly for **Subway** + grocery store run
+- Back to hotel
 
 ---
 
-### Day 10 · Tuesday April 21 — Harajuku / Omotesando / Shopping
+### Day 10 · Tuesday April 21 — TBD (recovering, replanning)
 
-- Morning: Ease in — coffee somewhere in Harajuku or Omotesando area
-  - **About Life Coffee Brewers** (Shibuya, tiny standing espresso bar) ⭐ or **Streamer Coffee** nearby
-- Late morning: **Nezu Shrine** — azalea festival (つつじまつり), late April = peak bloom, tunnel of pink/red azaleas up the hillside ⭐⭐
-  - ~20 min by Tokyo Metro Chiyoda Line from Meiji-Jingumae (Harajuku)
-  - Entry to the azalea garden ~¥500
-- Back to Harajuku/Omotesando:
-  - **Omotesando** — main boulevard, high-end boutiques, good window shopping
-  - **Cat Street** — independent streetwear shops, vintage, more casual ⭐
-  - **Takeshita Street** — chaotic, fun to walk once
-  - **Uniqlo** — the Harajuku flagship ⭐ (or save for Ginza 12-floor flagship on a separate day)
-- Lunch: TBD — plenty of options in Harajuku/Omotesando, or grab something on Cat Street
-- Afternoon: Continue shopping, wander, or drop bags back at hotel and decompress
-- Evening: TBD — dinner somewhere good (Harajuku/Shibuya area, or head back toward Shinjuku)
+- Feeling slightly better, still haven't pooped but things feel like they're moving
+- Noon: figuring out what to do with the rest of the trip — schedule is blown up
+- **Previous plan (scrapped):** Harajuku / Omotesando / Nezu Shrine azaleas / Cat Street shopping
+
+**Today's light plan (recovery mode, stay close to hotel):**
+- Coffee + **fluffy pancakes** (A Happy Pancake Shinjuku or Flipper's)
+- Nail salon / quick nail trim
+- Light walk around Shinjuku
+- Stay bland on food until things move
 
 ---
 
-### Day 11 · Wednesday April 22 - Kawagoe (day trip)
+### Day 11 · Wednesday April 22 — Buffer day (Kawagoe OR chill Tokyo)
 
-_(ideas TBD)_
-
----
-
-### Day 12 · Thursday April 23 — Free Tokyo day (TBD)
-
-_(ideas TBD)_
+- **If recovered (pooped, feeling solid):** Kawagoe day trip (~1 hr each way, easy)
+  - Kurazukuri Street (old warehouse district), Candy Alley, Toki no Kane bell tower
+- **If still fragile:** chill Tokyo day — Nezu Shrine azaleas (peak bloom, low intensity), coffee, easy walking
 
 ---
 
-### Day 13 · Friday April 24 — Hitachi Seaside Park + Omakase dinner
+### Day 12 · Thursday April 23 — Ashikaga Flower Park (day trip) ⭐⭐
 
-- Early morning: Train to **Hitachi Seaside Park** (~2hrs from Ueno via JR Joban Line to Katsuta, then Hitachinaka Seaside Railway Minato Line to Ajigaura) ⭐⭐
-  - Late April = peak nemophila bloom — hillsides covered in blue baby blue eyes flowers, surreal
-  - ~¥450 entry + ¥200 Minato Line
-- Spend the morning/afternoon wandering the park — it's large, take your time
-- Head back to Tokyo, arrive ~6–7pm
-- Evening: **Omakase dinner** — TBD (Sushi Rinda / Kyubey / Bird Land yakitori omakase) ⭐⭐
-  - Book well in advance — this is the reward for a long travel day
-- Note: Hitachi timed-entry tickets may be needed on peak weekends — check ahead
+- Moved from original Day 8. Wisteria peak window is tight — prioritize over Kawaguchiko.
+- Early morning: Depart hotel ~7:30–8am, train to **Ashikaga Flower Park** (~1h45m — JR Ryomo Line to Ashikagashi Station), arrive ~9:30am
+- Giant purple wisteria canopy (150+ year old vine), white/yellow/pink cascades
+- ~¥1,500–2,000 entry (adjusts by bloom quality)
+- ⚠️ Check timed-entry ticket requirements during peak
+- Lunch: Hōtō noodles near the park
+- Back to Tokyo ~4–5pm
+
+---
+
+### Day 13 · Friday April 24 — Kawaguchiko + Shiraito Falls (day trip) ⭐⭐
+
+- Moved from original Day 9. Physically the biggest day — want to be at full strength.
+- **Fuji Excursion** limited express from Shinjuku (~7–8am), reserved seat, ~2hrs
+- Rent a bike at Kawaguchiko station, loop the lake (~20km) — north shore has best Fuji views
+- Lunch near the lake — hōtō noodles
+- Afternoon: Fujikyu bus to **Shiraito Falls** (~35–40 min)
+- Fuji Excursion back, arrive Shinjuku ~7–8pm
+- Dinner: easy near hotel
 
 ---
 
@@ -188,15 +183,23 @@ _(ideas TBD)_
 
 _Fully work-free — wind down, last big nights out_
 
-### Day 14 · Saturday April 25 — TBD
+### Day 14 · Saturday April 25 — Tokyo recovery + Omakase dinner
 
-_(ideas TBD)_
+- Light Tokyo day — pace depends on how Fri went
+- Evening: **Omakase dinner** ⭐⭐ (Sushi Rinda / Kyubey / Bird Land yakitori omakase — book in advance)
 
 ---
 
-### Day 15 · Sunday April 26
+### Day 15 · Sunday April 26 — Last day / loose ends
 
-_(ideas TBD)_
+- Tokyo, loose ends — jacket decision, anything missed
+- Pack
+
+---
+
+### Scrapped
+
+- **Hitachi Seaside Park** — dropped due to sickness / limited remaining days
 
 ---
 
@@ -214,6 +217,7 @@ _To be assigned to specific days above once planned_
 
 | Day Trip                       | Best day to go                                        | Duration                 |
 | ------------------------------ | ----------------------------------------------------- | ------------------------ |
-| Kawaguchiko + Shiraito Falls   | Day 9 (Mon Apr 20) ✅                                 | Full day ~2 hrs each way |
-| Kawagoe                        | Day 11 (Wed Apr 22) ✅                                | Full day ~1 hr           |
-| Hitachi Seaside Park           | Day 13 (Fri Apr 24) ✅                                | Full day ~2 hrs each way |
+| Ashikaga Flower Park           | Day 12 (Thu Apr 23) — rescheduled from Day 8          | Full day ~1h45m each way |
+| Kawaguchiko + Shiraito Falls   | Day 13 (Fri Apr 24) — rescheduled from Day 9          | Full day ~2 hrs each way |
+| Kawagoe                        | Day 11 (Wed Apr 22) — buffer / conditional on health  | Full day ~1 hr           |
+| Hitachi Seaside Park           | ~~Scrapped~~                                          | —                        |

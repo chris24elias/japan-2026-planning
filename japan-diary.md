@@ -82,4 +82,28 @@ Had dinner at Yakitori Ruike in Nishi-Shinjuku. Disappointing — it was only ch
 
 Woke up and still no urge to go — day 5 now. Feeling really bad. Finally used the enema and it worked but only a little. Not enough.
 
-Went out to the grocery store to buy some stuff but came back to the hotel. It's the afternoon and I'm still not feeling great. Ashikaga moved to tomorrow. Trying to make this a light recovery day — maybe a massage and laundry.
+Went out to the grocery store to buy some stuff but came back to the hotel. Rested through the afternoon. By evening I felt good enough to head out — went back to Shinjuku, revisited the jacket store one more time. Still didn't pull the trigger on it. Walked around Shinjuku for a while, then ended the night with yakiniku before heading home.
+
+In hindsight the yakiniku was a huge mistake. I still hadn't really cleared out and piling that much grilled meat on top was the wrong call.
+
+---
+
+## Day 8 — Sunday April 19
+
+Felt completely horrible all day. Nauseous, full, the yakiniku from the night before was still sitting in my throat — never digested. Ashikaga was obviously out.
+
+Forced myself to leave the hotel anyway and went to Nakameguro. Right when I got there I stumbled into a dog fair event — tons of dogs everywhere, it was so cute. Genuinely the best part of the day.
+
+Hit Onibus Coffee and had a coffee, then walked over to Good Sound Coffee and had a cheesecake. Tried to push through to % Arabica but when I got there I couldn't bring myself to order anything — just felt awful. Headed back to the hotel.
+
+---
+
+## Day 9 — Monday April 20
+
+Still felt horrible. Didn't leave the hotel at all during the day — Kawaguchiko / Shiraito obviously scrapped. Did my laundry at the hotel. The only time I stepped out was at night when I felt okay enough to grab Subway and a few things from a grocery store. Back to the hotel.
+
+---
+
+## Day 10 — Tuesday April 21
+
+Feeling a tiny bit better. Still haven't pooped but things feel like they're moving in there — hopefully soon. It's around noon and I'm trying to figure out what to actually do with the rest of the trip. This sickness has completely blown up my schedule.
