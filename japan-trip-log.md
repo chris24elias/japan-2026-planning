@@ -133,25 +133,29 @@ _Fully free — no work at all, days AND nights_
 
 ---
 
-### Day 10 · Tuesday April 21 — TBD (recovering, replanning)
+### Day 10 · Tuesday April 21 — Ikebukuro (actual — recovery / light day)
 
-- Feeling slightly better, still haven't pooped but things feel like they're moving
-- Noon: figuring out what to do with the rest of the trip — schedule is blown up
-- **Previous plan (scrapped):** Harajuku / Omotesando / Nezu Shrine azaleas / Cat Street shopping
+- Slow morning, still fragile
+- **Sarutahiko Coffee Ikebukuro** — sat and did work ⭐
+- Nail salon — quick trim ✅
+- Italian dinner — disappointing, didn't like it
+- Walked around looking for a head massage — struck out, nothing worked
+- **Loft** — finally pooped a little (first progress in ~5 days)
+- Back to hotel
 
-**Today's light plan (recovery mode, stay close to hotel):**
-- Coffee + **fluffy pancakes** (A Happy Pancake Shinjuku or Flipper's)
-- Nail salon / quick nail trim
-- Light walk around Shinjuku
-- Stay bland on food until things move
+_Previous plan (scrapped): Harajuku / Omotesando / Nezu Shrine azaleas / Cat Street shopping_
 
 ---
 
-### Day 11 · Wednesday April 22 — Buffer day (Kawagoe OR chill Tokyo)
+### Day 11 · Wednesday April 22 — Kawagoe day trip (actual) ⭐
 
-- **If recovered (pooped, feeling solid):** Kawagoe day trip (~1 hr each way, easy)
-  - Kurazukuri Street (old warehouse district), Candy Alley, Toki no Kane bell tower
-- **If still fragile:** chill Tokyo day — Nezu Shrine azaleas (peak bloom, low intensity), coffee, easy walking
+- First real day out since getting sick — had the energy for a day trip
+- **Kawagoe** (~1 hr each way)
+  - Kurazukuri Street (old warehouse district)
+  - **Toki no Kane** (bell tower) ⭐
+  - **Miffy-themed bread store** ⭐
+  - **Snoopy village** ⭐
+- Back to Tokyo in the evening
 
 ---
 

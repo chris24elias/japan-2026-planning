@@ -107,3 +107,15 @@ Still felt horrible. Didn't leave the hotel at all during the day — Kawaguchik
 ## Day 10 — Tuesday April 21
 
 Feeling a tiny bit better. Still haven't pooped but things feel like they're moving in there — hopefully soon. It's around noon and I'm trying to figure out what to actually do with the rest of the trip. This sickness has completely blown up my schedule.
+
+Ended up heading to Ikebukuro. Posted up at Sarutahiko Coffee and got some work done — was nice to feel semi-functional again. Afterwards went and got my nails trimmed. Tried an Italian spot for dinner and didn't love it, just wasn't what I wanted.
+
+Spent a while wandering around trying to find somewhere to get a head massage but struck out — everywhere was either booked or not the right kind of place. Ended up in a Loft and finally pooped a little, right there in the store. Not a full clearout but something. Walked around a bit more and then headed back to the hotel.
+
+---
+
+## Day 11 — Wednesday April 22
+
+Finally had enough energy for a real day — went to Kawagoe. Pretty cool little town. Walked through the old Kurazukuri street, saw the bell tower (Toki no Kane), and stumbled into a Miffy-themed bread store which was adorable. Also hit the Snoopy village which was a nice surprise — didn't know that was there.
+
+Good to be out and moving again after the last few days of being stuck in the hotel.
