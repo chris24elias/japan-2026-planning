@@ -118,4 +118,14 @@ Spent a while wandering around trying to find somewhere to get a head massage bu
 
 Finally had enough energy for a real day — went to Kawagoe. Pretty cool little town. Walked through the old Kurazukuri street, saw the bell tower (Toki no Kane), and stumbled into a Miffy-themed bread store which was adorable. Also hit the Snoopy village which was a nice surprise — didn't know that was there.
 
-Good to be out and moving again after the last few days of being stuck in the hotel.
+Good to be out and moving again after the last few days of being stuck in the hotel. Ended the night with creamy seafood udon for dinner — exactly the kind of warm, easy meal my gut needed.
+
+---
+
+## Day 12 — Thursday April 23
+
+Woke up slow, rain all day. Originally Ashikaga was supposed to be today but the rain plus a late start pushed me to swap it with Friday, which is forecast clear. Good call — the wisteria will still be there tomorrow.
+
+Headed to Shibuya in the afternoon. Was walking over to Flipper's for fluffy pancakes but got sidetracked when I stumbled into a BTS pop-up store. Ended up browsing and buying a few things, and by the time I came out I'd totally lost the pancake craving.
+
+Somehow my brain landed on Mom's Touch — the Korean chicken burger spot. Went back and forth on whether it was worth "using" a Japan meal slot on something that isn't even Japanese, but by then it was 4pm, I was hungry, had a headache, and it was still raining. Kept it small, just enough to take the edge off, so I can do a real Japanese dinner later tonight.

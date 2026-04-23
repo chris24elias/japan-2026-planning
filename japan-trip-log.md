@@ -156,14 +156,19 @@ _Previous plan (scrapped): Harajuku / Omotesando / Nezu Shrine azaleas / Cat Str
   - **Miffy-themed bread store** ⭐
   - **Snoopy village** ⭐
 - Back to Tokyo in the evening
+- Dinner: **creamy seafood udon** ⭐ — warm and easy on the gut
 
 ---
 
-### Day 12 · Thursday April 23 — Rain day, chill Tokyo
+### Day 12 · Thursday April 23 — Rain day, Shibuya (actual)
 
-- Rain all day — Ashikaga pushed to tomorrow (clear forecast)
-- Low-key indoor Tokyo day — coffee / shops / rest
-- Keep powder dry for back-to-back day trips Fri + Sat
+- Rain all day — Ashikaga pushed to Friday (clear forecast)
+- Slept in, slow start
+- Afternoon: Shibuya
+  - Originally headed to **Flipper's** for fluffy pancakes
+  - Sidetracked by a **BTS pop-up store** — browsed and bought a few things ✅
+  - Lost the pancake craving, ended up at **Mom's Touch** (Korean chicken burger) around 4pm — headache + hungry + rainy, kept it small as a snack
+- Evening: real Japanese dinner TBD
 
 ---
 
