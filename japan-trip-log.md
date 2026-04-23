@@ -156,6 +156,7 @@ _Previous plan (scrapped): Harajuku / Omotesando / Nezu Shrine azaleas / Cat Str
   - **Miffy-themed bread store** ⭐
   - **Snoopy village** ⭐
 - Back to Tokyo in the evening
+- **Gregory** — finally bought the 20L backpack (eyed since Day 4) ⭐⭐
 - Dinner: **creamy seafood udon** ⭐ — warm and easy on the gut
 
 ---

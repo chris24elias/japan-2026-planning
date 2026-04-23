@@ -118,7 +118,7 @@ Spent a while wandering around trying to find somewhere to get a head massage bu
 
 Finally had enough energy for a real day — went to Kawagoe. Pretty cool little town. Walked through the old Kurazukuri street, saw the bell tower (Toki no Kane), and stumbled into a Miffy-themed bread store which was adorable. Also hit the Snoopy village which was a nice surprise — didn't know that was there.
 
-Good to be out and moving again after the last few days of being stuck in the hotel. Ended the night with creamy seafood udon for dinner — exactly the kind of warm, easy meal my gut needed.
+Good to be out and moving again after the last few days of being stuck in the hotel. After getting back to Tokyo I finally pulled the trigger on the Gregory 20L backpack I'd been eyeing since Day 4 — my shoulders have been begging for relief from the Alpaka tote. Ended the night with creamy seafood udon for dinner — exactly the kind of warm, easy meal my gut needed.
 
 ---
 
