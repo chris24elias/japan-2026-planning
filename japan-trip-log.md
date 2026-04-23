@@ -159,45 +159,48 @@ _Previous plan (scrapped): Harajuku / Omotesando / Nezu Shrine azaleas / Cat Str
 
 ---
 
-### Day 12 · Thursday April 23 — Ashikaga Flower Park (day trip) ⭐⭐
+### Day 12 · Thursday April 23 — Rain day, chill Tokyo
 
-- Moved from original Day 8. Wisteria peak window is tight — prioritize over Kawaguchiko.
-- Early morning: Depart hotel ~7:30–8am, train to **Ashikaga Flower Park** (~1h45m — JR Ryomo Line to Ashikagashi Station), arrive ~9:30am
-- Giant purple wisteria canopy (150+ year old vine), white/yellow/pink cascades
-- ~¥1,500–2,000 entry (adjusts by bloom quality)
-- ⚠️ Check timed-entry ticket requirements during peak
-- Lunch: Hōtō noodles near the park
-- Back to Tokyo ~4–5pm
+- Rain all day — Ashikaga pushed to tomorrow (clear forecast)
+- Low-key indoor Tokyo day — coffee / shops / rest
+- Keep powder dry for back-to-back day trips Fri + Sat
 
 ---
 
-### Day 13 · Friday April 24 — Kawaguchiko + Shiraito Falls (day trip) ⭐⭐
+### Day 13 · Friday April 24 — Ashikaga Flower Park (day trip) ⭐⭐
 
-- Moved from original Day 9. Physically the biggest day — want to be at full strength.
-- **Fuji Excursion** limited express from Shinjuku (~7–8am), reserved seat, ~2hrs
-- Rent a bike at Kawaguchiko station, loop the lake (~20km) — north shore has best Fuji views
-- Lunch near the lake — hōtō noodles
-- Afternoon: Fujikyu bus to **Shiraito Falls** (~35–40 min)
-- Fuji Excursion back, arrive Shinjuku ~7–8pm
-- Dinner: easy near hotel
+- Moved from Day 12 (rain). Wisteria peak window — priority.
+- Route: Takadanobaba → Ueno (Yamanote) → **Oyama** (Tohoku Shinkansen, ~20 min) → **Ashikaga Flower Park Station** (JR Ryomo Line, ~25 min). ~1h40m total.
+- Cheaper option: Shinjuku → Oyama (JR Shonan-Shinjuku Line, ~1h15m) → Ryomo Line (~2h total)
+- Giant purple wisteria canopy (150+ year old vine), white/yellow/pink cascades
+- **Night illumination is the star** — park open till 9pm during wisteria season
+- ⚠️ Check timed-entry ticket requirements during peak
+- Eat inside the park (stalls open for illumination crowd)
+- Back to Shinjuku late (~11pm)
 
 ---
 
 ## Weekend 2 · Saturday–Sunday April 25–26
 
-_Fully work-free — wind down, last big nights out_
+_Big day trip Saturday · omakase Sunday · pack Sunday night_
 
-### Day 14 · Saturday April 25 — Tokyo recovery + Omakase dinner
+### Day 14 · Saturday April 25 — Kawaguchiko + Shiraito Falls (day trip) ⭐⭐
 
-- Light Tokyo day — pace depends on how Fri went
-- Evening: **Omakase dinner** ⭐⭐ (Sushi Rinda / Kyubey / Bird Land yakitori omakase — book in advance)
+- Moved from Day 13. Saturday is the clearest day of the week — best Fuji visibility shot.
+- **Fuji Excursion** limited express from Shinjuku (~7–8am), reserved seat, ~2hrs — **book in advance** (weekend + clear weather = sells out)
+- Rent a bike at Kawaguchiko station, loop the lake (~20km) — north shore has best Fuji views
+- Lunch near the lake — hōtō noodles
+- Afternoon: Fujikyu bus to **Shiraito Falls** (~35–40 min)
+- Fuji Excursion back, arrive Shinjuku ~7–8pm
+- Dinner: easy near hotel — will be wrecked
 
 ---
 
-### Day 15 · Sunday April 26 — Last day / loose ends
+### Day 15 · Sunday April 26 — Tokyo loose ends + Omakase ⭐⭐
 
-- Tokyo, loose ends — jacket decision, anything missed
-- Pack
+- Moved omakase here (originally Sat) — Saturday too wrecked after Fuji day
+- Light Tokyo day — jacket decision, anything missed, pack
+- Evening: **Omakase dinner** (Sushi Rinda / Kyubey / Bird Land yakitori omakase — book in advance)
 
 ---
 
@@ -221,7 +224,7 @@ _To be assigned to specific days above once planned_
 
 | Day Trip                       | Best day to go                                        | Duration                 |
 | ------------------------------ | ----------------------------------------------------- | ------------------------ |
-| Ashikaga Flower Park           | Day 12 (Thu Apr 23) — rescheduled from Day 8          | Full day ~1h45m each way |
-| Kawaguchiko + Shiraito Falls   | Day 13 (Fri Apr 24) — rescheduled from Day 9          | Full day ~2 hrs each way |
-| Kawagoe                        | Day 11 (Wed Apr 22) — buffer / conditional on health  | Full day ~1 hr           |
+| Ashikaga Flower Park           | Day 13 (Fri Apr 24) — moved from Day 12 (rain)        | Full day ~1h40m each way |
+| Kawaguchiko + Shiraito Falls   | Day 14 (Sat Apr 25) — moved to weekend's clear day    | Full day ~2 hrs each way |
+| Kawagoe                        | Day 11 (Wed Apr 22) ✅ done                           | Full day ~1 hr           |
 | Hitachi Seaside Park           | ~~Scrapped~~                                          | —                        |
