@@ -128,4 +128,16 @@ Woke up slow, rain all day. Originally Ashikaga was supposed to be today but the
 
 Headed to Shibuya in the afternoon. Was walking over to Flipper's for fluffy pancakes but got sidetracked when I stumbled into a BTS pop-up store. Ended up browsing and buying a few things, and by the time I came out I'd totally lost the pancake craving.
 
-Somehow my brain landed on Mom's Touch — the Korean chicken burger spot. Went back and forth on whether it was worth "using" a Japan meal slot on something that isn't even Japanese, but by then it was 4pm, I was hungry, had a headache, and it was still raining. Kept it small, just enough to take the edge off, so I can do a real Japanese dinner later tonight.
+Somehow my brain landed on Mom's Touch — the Korean chicken burger spot. Went back and forth on whether it was worth "using" a Japan meal slot on something that isn't even Japanese, but by then it was 4pm, I was hungry, had a headache, and it was still raining. Kept it small, just enough to take the edge off, so I could do a real Japanese dinner later.
+
+Afterwards I wandered and the rest of the evening ended up being really good. Stopped into Tower Records and picked up a Jujutsu Kaisen special edition CD. Finally got a head massage — I'd been hunting for one since Monday and couldn't find anywhere. Sat down at a cafe for some tea to decompress. Ended up at an Italian restaurant for dinner and had a great bolognese and pizza — nice redemption after the bad Italian spot two nights ago. Home after that.
+
+---
+
+## Day 13 — Friday April 24
+
+Ashikaga day. Getting there was a nightmare — I screwed up the trains twice and added about two hours to the commute. Absolutely ruined my mood on the way out there.
+
+But once I was inside the park, it was worth it. The wisteria was stunning, and there were way more flowers going than just wisteria — the whole place was in full bloom. The one real issue was the cold: I didn't bring a proper jacket and it was freezing once the sun went down, especially standing around for the illumination. Next time I pack smarter.
+
+Long day home. Tired, but glad I made it.

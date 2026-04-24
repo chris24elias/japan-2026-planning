@@ -169,20 +169,22 @@ _Previous plan (scrapped): Harajuku / Omotesando / Nezu Shrine azaleas / Cat Str
   - Originally headed to **Flipper's** for fluffy pancakes
   - Sidetracked by a **BTS pop-up store** — browsed and bought a few things ✅
   - Lost the pancake craving, ended up at **Mom's Touch** (Korean chicken burger) around 4pm — headache + hungry + rainy, kept it small as a snack
-- Evening: real Japanese dinner TBD
+- Evening (Shibuya continued):
+  - **Tower Records** — bought a **Jujutsu Kaisen special edition CD** ⭐
+  - Finally got a **head massage** ⭐ (hunted since Day 10)
+  - Tea at a cafe
+  - Dinner: **Italian** — bolognese + pizza, both good ⭐ (redemption after Day 10's bad Italian)
+  - Home after
 
 ---
 
-### Day 13 · Friday April 24 — Ashikaga Flower Park (day trip) ⭐⭐
+### Day 13 · Friday April 24 — Ashikaga Flower Park (actual) ⭐⭐
 
-- Moved from Day 12 (rain). Wisteria peak window — priority.
-- Route: Takadanobaba → Ueno (Yamanote) → **Oyama** (Tohoku Shinkansen, ~20 min) → **Ashikaga Flower Park Station** (JR Ryomo Line, ~25 min). ~1h40m total.
-- Cheaper option: Shinjuku → Oyama (JR Shonan-Shinjuku Line, ~1h15m) → Ryomo Line (~2h total)
-- Giant purple wisteria canopy (150+ year old vine), white/yellow/pink cascades
-- **Night illumination is the star** — park open till 9pm during wisteria season
-- ⚠️ Check timed-entry ticket requirements during peak
-- Eat inside the park (stalls open for illumination crowd)
-- Back to Shinjuku late (~11pm)
+- Made it to **Ashikaga Flower Park** — full visit (daytime + illumination)
+- Wisteria beautiful, park was in full bloom across many flower varieties ⭐⭐
+- ⚠️ Commute was a disaster — messed up the trains twice, added ~2 hrs each way, killed the mood going in
+- ⚠️ **Freezing** in the evening, didn't bring a proper jacket — lesson: pack warmer for any evening flower park visit
+- Long day back to Shinjuku
 
 ---
 
